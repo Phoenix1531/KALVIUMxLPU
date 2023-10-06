@@ -1,1 +1,0 @@
-GRID SLIDE - https://docs.google.com/presentation/d/1DGPv6AZkijV7gB64yiIXo2zsnqmCMoNDh2zte8Rmf0Y/edit?usp=sharing
